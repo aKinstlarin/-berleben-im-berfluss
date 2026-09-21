@@ -1,4 +1,4 @@
-![Überleben im Überfluss](IMG_20250702_140345.jpg)
+![Überleben im Überfluss](Überleben im Überfluss.jpg)
 # Überleben im Überfluss
 
 **Titel:** Überleben im Überfluss 
