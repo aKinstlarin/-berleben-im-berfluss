@@ -1,4 +1,4 @@
-![Überleben im Überfluss](Überleben im Überfluss.jpg)
+![Überleben im Überfluss](ÜberlebenimÜberfluss.jpg)
 # Überleben im Überfluss
 
 **Titel:** Überleben im Überfluss 
