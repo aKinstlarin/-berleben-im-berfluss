@@ -1,7 +1,7 @@
-![Überleben im Überfluss](ÜberlebenimÜberfluss.jpg)
-# Überleben im Überfluss
+![Mein Haus hat Räder](ÜberlebenimÜberfluss.jpg)
+# Mein Haus hat Räder
 
-**Titel:** Überleben im Überfluss 
+**Titel:** Mein Haus hat Räder
 **Technik:** Öl auf Leinwand  
 **Größe:** 80 × 80 × 4,5 cm  
 **Jahr:** 2026  
